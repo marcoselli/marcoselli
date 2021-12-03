@@ -1,4 +1,4 @@
-### Seja bem-vindo ao meu perfil! Eu sou o Marco Selli 🤓
+### Seja bem-vindo ao meu perfil! Eu sou o Marco Selli 👋
 
 
 <div align="center">
