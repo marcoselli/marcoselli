@@ -1,4 +1,4 @@
-### Fala Devs, sejam bem-vindos ao meu perfil! Eu sou o Marco Selli 👋
+### Sejam bem-vindos ao meu perfil! Eu sou o Marco Selli 👋
 
 
 <div align="center">
